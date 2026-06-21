@@ -1,6 +1,6 @@
 # License
 
-**Roce de amor prohibido**
+**Roce de amor prohibido, Vol. 2**
 
 Copyright (c) 2026 Abu Sayed. All Rights Reserved.
 
